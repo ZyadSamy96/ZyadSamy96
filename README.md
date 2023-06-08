@@ -12,7 +12,7 @@
 
 #### You Can reach me:
 
-[![image](https://github.com/ZyadSamy96/ZyadSamy96/assets/94635686/24c3e53e-2bd9-4b9a-a9c9-c12831304f6f)](https://www.linkedin.com/in/zyad-samy-b2b4b4191/)      [![image](https://github.com/ZyadSamy96/ZyadSamy96/assets/94635686/c821e46e-7094-43a7-ae87-936089f08ab1)](zyad.samy.096@gmail.com)
+[![image](https://github.com/ZyadSamy96/ZyadSamy96/assets/94635686/24c3e53e-2bd9-4b9a-a9c9-c12831304f6f)](https://www.linkedin.com/in/zyad-samy-b2b4b4191/)               [![image](https://github.com/ZyadSamy96/ZyadSamy96/assets/94635686/c821e46e-7094-43a7-ae87-936089f08ab1)](zyad.samy.096@gmail.com)
  
 #### Languages and Tools: 
 
